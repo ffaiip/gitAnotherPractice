@@ -23,6 +23,7 @@
 1. Implement unittest
 1. Use Agile Development Process
 2. Read books 
-3. Waneiei
+3. Teletubby ma leawwwwwwwwww
 4. Use Agile Development Process
 5. Use Scrum
+6. mimint wanna eat shabu eiei
